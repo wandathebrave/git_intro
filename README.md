@@ -1,2 +1,1 @@
 Wanda Sowa
-3
